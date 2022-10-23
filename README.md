@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on [Code Your Future](https://syllabus.codeyourfuture.io/contributing/overview)
 - 💬 Ask me about [volunteering at CYF](https://codeyourfuture.io/volunteers/)
 - 📫 How to reach me: contact@codeyourfuture.io
-- ⚡ Fun fact: I know you are reading this, Capetown! I can seeeeeeeee you! 😉 
+- ⚡ Fun fact: I know you are reading this, London 9! I can seeeeeeeee you! 😉 
 
